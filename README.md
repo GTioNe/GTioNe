@@ -46,7 +46,7 @@
 - 🌐 **ITIL 4 Foundation**
 
 ### 🔗 **Vamos nos conectar?**  
-[LinkedIn](https://www.linkedin.com/in/guilhermesantana) | 📧 guihsantana1@gmail.com
+[LinkedIn](https://www.linkedin.com/in/guiilhermesantana/) | 📧 guihsantana1@gmail.com
 
 <div align="center">
 <br><p align="centre"><b>Visitors Count</b></p>  
